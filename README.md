@@ -8,3 +8,8 @@ Every Kind Of Natural Beauty. Beyond stunning beaches and magical temples, Bali 
 1. Sleeping
 2. Eating
 3. Watching TV
+***
+## Food Available
+* Chicken
+* Curd
+* Fish
