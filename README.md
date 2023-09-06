@@ -26,11 +26,11 @@ This table has out door sports like football, cricket, tennis and badminton whic
 
 ## Sayings By Scientists
 
-> “It is strange that only extraordinary man-made the discoveries twitch later appear so easy and simple.” – George C. Lichtenberg.
+> “It is strange that only extraordinary man-made the discoveries twitch later appear so easy and simple.” – *George C. Lichtenberg*.
 
-> “Art is the tree of life. Science is the tree of death.” – William Blake
+> “Art is the tree of life. Science is the tree of death.” – *William Blake*
 
-> “Rockets are cool. There’s no getting around that.” – Elon Musk
+> “Rockets are cool. There’s no getting around that.” – *Elon Musk*
 
 ***
 
