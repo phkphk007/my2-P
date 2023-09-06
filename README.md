@@ -6,6 +6,14 @@ Every Kind Of Natural Beauty. Beyond stunning beaches and magical temples, Bali 
 
 ***
 
+## Fav activies in Vacation
+
+1. Skiing
+2. Bungee jumping
+3. Sleeping
+4. Paragliding
+5. Huntung
+
 [Link to my bio](MyStats.md)
 
 ***
