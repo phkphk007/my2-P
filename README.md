@@ -14,6 +14,13 @@ Every Kind Of Natural Beauty. Beyond stunning beaches and magical temples, Bali 
 4. Paragliding
 5. Huntung
 
+## Favourite Food Dishes
+
++ Fish
++ Crab
++ Chicken
++ Rice
+
 [Link to my bio](MyStats.md)
 
 ***
